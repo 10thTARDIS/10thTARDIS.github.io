@@ -1,6 +1,10 @@
-﻿A Killer Joke
+layout: page
+title: "A Killer Joke"
+permalink: /Writing/AKillerJoke/
 
-Ryan Brooks
+#A Killer Joke
+
+##Ryan Brooks
 
 The door opened to reveal a pool of blood.  Body parts had been nailed to the wall with furious intensity, judging from the deep holes in the wall from where the hammer had initially missed its mark.
 
