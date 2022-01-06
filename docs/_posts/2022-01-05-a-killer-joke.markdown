@@ -90,5 +90,4 @@ It would be *so fucking funny*.
 
 ---
 
-*This story was inspired by this prompt:*
-[Tumblr screenshot](/docs/images/AKillerJokeInspiration.png)
+*This story was inspired by [this prompt](/docs/images/AKillerJokeInspiration.png).*
