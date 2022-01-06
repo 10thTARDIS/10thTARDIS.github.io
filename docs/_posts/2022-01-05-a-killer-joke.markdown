@@ -87,3 +87,8 @@ Rachel touched her neck gingerly.  “Without my… head?”
 And with that, she swept out the door and was gone.  Rachel looked around at the little room attached to the alley garage she’d heard noises from before apparently being murdered and dismembered, then closed her eyes and took a deep breath.  She knew she’d face her killer again, only this time she’d know who they were, and what they’d done, and she knew Sarah was right about how frustrated they would be to see her alive and well.  She let a smile grow on her face as she considered how that meeting would go, and found herself agreeing with Sarah.
 
 It would be *so fucking funny*.
+
+---
+
+*This story was inspired by this prompt:*
+[Tumblr screenshot](/docs/images/AKillerJokeInspiration.png)
